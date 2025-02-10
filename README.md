@@ -1,4 +1,4 @@
-Don’t Hire a General Contractor for Your Kitchen Remodel Until You Read This!
+#Don’t Hire a General Contractor for Your Kitchen Remodel Until You Read This!
 A Kitchen Designer’s Guide to a Hassle-Free Renovation
 
 Introduction: Hiring the Right General Contractor Kitchen Remodel Specialist is Critical
